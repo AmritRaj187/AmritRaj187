@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **amritr187@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1bsxGyTvWynhYrU6I2v7pCGb1k5ocmd-r/view?usp=sharing](https://drive.google.com/file/d/1bsxGyTvWynhYrU6I2v7pCGb1k5ocmd-r/view?usp=sharing)
+- 📄 Know about my experiences [Google Drive Link ](https://drive.google.com/file/d/1OH7uQPmzjcuoKpKDvS9BhO2Y4Jkv1Pqh/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
